@@ -1,1 +1,1 @@
-# stiker-lucu
+# Toko Stiker Lucu
